@@ -41,5 +41,4 @@ toptruyenfull.com - website [đọc truyện online hay nhất](https://toptruye
 
 
 
-hotnovelonline.com - Best novel for you, Read novel online, [Best Web Novel](https://
-hotnovelonline.com), Chinese Novel, Japanese And Korean Novel, Free Novel Online for you.
+hotnovelonline.com - Best novel for you, Read novel online, [Best Web Novel](https://hotnovelonline.com), Chinese Novel, Japanese And Korean Novel, Free Novel Online for you.
